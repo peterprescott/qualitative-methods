@@ -353,6 +353,7 @@ This paragraph from @SSinclair2004 is a clear example:
 > of days later, two men were shot dead in a local gym. The Lord really
 > had our attention and we cried out to Him to teach us how to pray and
 > show us how to deal with this..." (p.95).
+
 Another would be @HSchikora2011, whose website includes reports of
 prayer-walks in forty-eight European capital cities. 
 
